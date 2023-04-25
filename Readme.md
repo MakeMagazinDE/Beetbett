@@ -1,4 +1,4 @@
-# Bett-Beet oder Beet-Bett?
+# Hoch-Bett-Beet oder Beet-Hoch-Bett?
 
 Wie ein altes Etagenbett eine neue Bestimmung fand. Im Community-Projekt in Make 3/23 beschreibt unser Autor Roman Zajonz, wie er aus einem alten Bett ein schickes Hochbeet für den Balkon gemacht hat. Hier nun ein paar Detail-Fotos mehr. In dem Ordner Hires befinden sich die hochaufgelösten Fotos falls Sie genau hinschauen möchten.
 
